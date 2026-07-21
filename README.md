@@ -1,4 +1,4 @@
-### Hi, I'm Prince 👋
+### Hi, I'm Pulkit Prince Pandey
 
 BTech CSE student | Creator | Web Development
 
